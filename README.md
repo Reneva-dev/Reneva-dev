@@ -8,6 +8,8 @@
                technology plays a huge role. I would like to be apart of the E-learning/Edtech industry especially in impoverished communities. 
     4. 🥇Current skills: Team player, able to adapt and hard-working. 
     5. 🔨Strengths: Researcher and creative ability. 
+
+    Contact me by email: renevanewman7@gmail.com
   
 
 <!---
